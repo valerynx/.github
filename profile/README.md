@@ -1,1 +1,1 @@
-![valeryn](https://github.com/valerynx/.github/blob/main/valerynat2700pm.png)
+![valeryn](https://github.com/valerynx/.github/blob/main/valeyn.png)
